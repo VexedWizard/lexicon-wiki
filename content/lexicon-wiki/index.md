@@ -1,5 +1,5 @@
 ---
-title: Insert game name here
+title: Insert Game Name Here
 ---
 
 
