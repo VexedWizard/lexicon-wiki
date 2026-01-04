@@ -1,12 +1,8 @@
 ---
-title: Welcome to Quartz
+title: Insert game name here
 ---
 
 
 # Recent Journal Entries
-[[Test 3]]
-[[test]]
-[[The Vexed Wizard]]
-
 
 
