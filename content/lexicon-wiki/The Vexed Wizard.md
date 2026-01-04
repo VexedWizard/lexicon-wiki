@@ -1,1 +1,1 @@
-Thish is another test 
+Let's see how the graph view works if I link the [[test]]
