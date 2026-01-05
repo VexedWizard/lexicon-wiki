@@ -1,1 +1,0 @@
-her love life was shit, married to [[mario mario]] and lived in [[bumblefucks whonows]] and really liked smut (see [[N - On Romantic Relations between Tieflings and Faun]]) [[luigi luigi]]
