@@ -1,7 +1,7 @@
 ---
-title: Insert Game Name Here
+title: Lexicon Game Name
 ---
-test description
+# Introduction Statement
 
 # Recent Journal Entries
 
