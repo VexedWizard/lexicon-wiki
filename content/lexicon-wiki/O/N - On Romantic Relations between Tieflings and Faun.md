@@ -1,1 +1,0 @@
-Asking for a friend,  and similar to [[A is for Apple]]
