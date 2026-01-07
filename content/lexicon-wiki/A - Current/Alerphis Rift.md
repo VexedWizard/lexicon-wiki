@@ -6,8 +6,6 @@ According to eye-witness testaments$^{[2]}$, certain survivors of the initial sc
 
 Recent collaborations between the Ehrelis Arcanocracy and its tributary [[HeartwoodCivic]]$^{[5,6]}$, have also hinted at new$^{\tiny\text{(Patent Pending)}}$ arcanodevlopments to increase the quality of life (and profits) of the average Ehrelian.
 
-testline
-
 ---
 \[1\] N. Ehrelis, et.al., "Reports from the Alerphis Rift", *On The Nalsith Schism*, Vol. 1, p131-159     
 \[2\] VioVasgeli56, "AlerphisVacation_02140_1858732041.scrl," world-wide-scroll-url: [wws.papyrus.co/read?v=-gi8c9wpkhc](https://www.youtube.com/watch?v=-gi8c9wpkhc)   
