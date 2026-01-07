@@ -7,9 +7,9 @@ According to eye-witness testaments$^{[2]}$, certain survivors of the initial sc
 Recent collaborations between the Ehrelis Arcanocracy and its tributary [[HeartwoodCivic]]$^{[5,6]}$, have also hinted at new$^{\tiny\text{(Patent Pending)}}$ arcanodevlopments to increase the quality of life (and profits) of the average Ehrelian.
 
 ---
-\[1\] N. Ehrelis, et.al., "Reports from the Alerphis Rift", *On The Nalsith Schism*, Vol. 1, p131-159
-\[2\] VioVasgeli56, "AlerphisVacation_02140_1858732041.scrl," world-wide-scroll-url: [wws.papyrus.co/read?v=-gi8c9wpkhc](https://www.youtube.com/watch?v=-gi8c9wpkhc)
-\[3\] *Remember Alerphis: Support Group*, "The Aftermath"
-\[4\] *Remember Alerphis: Support Group*, "Complete Collection of Searches", Edition XLVI
-\[5\] C. Xhegi, S. Kosteli, N. Ehrelis, "Experimental Advancements in Alerphian Rift Solutions", EhrXiv:A15092
+\[1\] N. Ehrelis, et.al., "Reports from the Alerphis Rift", *On The Nalsith Schism*, Vol. 1, p131-159     
+\[2\] VioVasgeli56, "AlerphisVacation_02140_1858732041.scrl," world-wide-scroll-url: [wws.papyrus.co/read?v=-gi8c9wpkhc](https://www.youtube.com/watch?v=-gi8c9wpkhc)   
+\[3\] *Remember Alerphis: Support Group*, "The Aftermath"   
+\[4\] *Remember Alerphis: Support Group*, "Complete Collection of Searches", Edition XLVI    
+\[5\] C. Xhegi, S. Kosteli, N. Ehrelis, "Experimental Advancements in Alerphian Rift Solutions", EhrXiv:A15092   
 \[6\] Ehrelis: Collaborations and Partnerships, wws-url: [wws.ehrarc.lis.gov/collaborators/](https://www.prisonlegalnews.org/news/publications/list-major-profit-prison-services-and-companies/)
