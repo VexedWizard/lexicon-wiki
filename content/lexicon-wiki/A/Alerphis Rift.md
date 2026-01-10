@@ -1,6 +1,6 @@
 *Written by Nyia Ehrelis, Chief Reforestation Officer under the Ehrelis Arcanocracy*
 
-The Alerphis Rift is the largest rift-type anomaly found within the Ehrelis Arcanocracy, and it spans a contiguous area of 82,403 km$^2$ based on reports from the first Reforestry Expedition$^{[1]}$. The rift presents itself as an almost viscous black fluid (or gas), forming the appearance of a [[C- Black Lakes|Black Lake]]. 
+The Alerphis Rift is the largest rift-type anomaly found within the Ehrelis Arcanocracy, and it spans a contiguous area of 82,403 km$^2$ based on reports from the first Reforestry Expedition$^{[1]}$. The rift presents itself as an almost viscous black fluid (or gas), forming the appearance of a [[Black Lake|Black Lake]]. 
 
 According to eye-witness testaments$^{[2]}$, certain survivors of the initial schism who intended to dive past the rift's shores (in search for their families) were seen to noticeably "slow down," as they approached crossing the rift's surface. Along with these reports were claims that said individuals also began to "slowly dim, leaving only a faint remnant of their image."$^{[3]}$ Due to continued surveys of various major sites$^{[4]}$, there is no evidence of these people's eventual return and have thus joined the list of those presumed dead.
 
