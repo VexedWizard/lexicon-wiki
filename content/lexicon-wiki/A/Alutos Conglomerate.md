@@ -1,4 +1,4 @@
-_Written by Christopher Zhang, Economic Historian and acting Lead Data Analyst for UniFex
+_Written by Christopher Zhang, Economic Historian and acting Lead Data Analyst for UniFex_
 
 At its core, the Alutos Conglomerate is the umbrella term used for an alliance of many powerful parent companies, magically oath-bound by a contract spanning the breadth of a mile that now serves as a symbol of global unity dubbed the [[Contract Unanima]]. 
 
