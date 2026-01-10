@@ -1,0 +1,7 @@
+*Excerpt from the Sworn Statement of Events by Defendant Nyia Ehrelis, presented during the Alerphis Trials*
+
+"Due to Agthorian Bullfinches' incredible propensity for adaptability, they have, throughout much of recorded history, been symbols of transitions. whether between seasons, queens, calamities, eras, or orders. No different was this on the overcloud day of the Thirteenth of Tërunai, where, abnormally, flocks of Agthorian Bullfinches gathered to observe the [[Alutos Conglomerate]] retain their dominance with the quelling of a decade long insurrection, lead by myself, Nyia Ehrelis.
+
+On this day, spearheaded primarily by UniFex and HeartwoodCivic, the [[Alutos Conglomerate]] raided the heart of the Verdant Hand in Ulhcinsh. Therein, they lawfully executed numerous terrorist insurgents, healers, and sympathisers, in order to liberated the largest known [[Ruins of the Nal|Nalsith ruin]] from the dangerous hands of the Ulhcinshi people. In doing so, they have unquestionably created an effective and private regulatory body to safely manage the distribution of previously dangerous arcanodevelopments, such as the numerous introductory Abjuration tomes, and the now infamous [[Tome of Life, Restoration, and Salveomantic Constructs]]. 
+
+Despite this, I yet plead innocent, for with the gracious assistance of the divinators and disenchanters within both UniFex and HeartwoodCivic, it was identified that numerous eighth-circle Equanimity Corporation enchantments were imbedded deep within my subconscious and..."
