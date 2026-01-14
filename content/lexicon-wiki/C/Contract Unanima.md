@@ -1,5 +1,6 @@
 *Written by the Contract Unanima, but you can just call me Jerry*
-<small><i>By reading this document you automatically agree to §137.035.999.166(15)</i></small>
+
+\[<small><i>By reading this document you automatically agree to §137.035.999.166(15)</i></small>\]
 
 Hey there! Thank you for taking the time to read more about me! It gets quite lonely being essentially a sentient piece of paper...
 
