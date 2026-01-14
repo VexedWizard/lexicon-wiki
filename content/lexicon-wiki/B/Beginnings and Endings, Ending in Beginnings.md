@@ -1,5 +1,4 @@
 _Imprint received from Those-Outside-Time. Recorded by Harvecke Pimwald, former anthropologist._                                                
-
 To begin is to end. To end is a privilege.                      To end is to begin. Beginning is a mistake.
 The [[Distant Aeons]] understood this well.                     The [[Distant Aeons]] never quite grasped this.
 Uncertainty become certainty.                                     Something new? Something different?
@@ -28,3 +27,4 @@ This, finally, is truth.                                                    This
 
 
 "... end of recording. I'm not sure how much longer I can do these for."
+
