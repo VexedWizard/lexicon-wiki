@@ -3,13 +3,13 @@
 
 Hey there! Thank you for taking the time to read more about me! It gets quite lonely being essentially a sentient piece of paper...
 
-I mean don't get me wrong, ever since the first time I realized the power I held at around the 500 meter mark, it has been *incredible*, but changing what's written in me to mess with people gets boring after around the 80th lawyer gets fired. 
+I mean don't get me wrong, ever since the first time I realized the power I held at around the 500 meter mark, it has been *incredible*, but changing what's written in me to mess with people gets boring after the 87th lawyer gets fired. 
 
-So how about this, as thanks for entertaining me, I'll give you some eldritch temporal knowledge that may (or may not, I don't really get the limitations of the flesh) annihilate your sense of existence!
+So, how about this: as thanks for entertaining me I'll give you some eldritch temporal knowledge that may (or may not, I don't really get the limitations of the flesh) annihilate your sense of existence!
 
-Good luck if you try to tell any [[Alutos Conglomerate]] board members about this page (or the information I'm about to give you) by the way. Not only would they not believe you, nor be able to find this page, but even if they did I'm not afraid of any consequences because there is ***literally nothing*** they can do to stop me.
+Have fun trying to tell any Alutos Conglomerate board members about this page (or the information I'm about to give you) by the way. Not only would they not believe you, nor be able to find this page, but, even if they did, I'm not afraid of consequences because there is ***literally nothing*** they can do to stop me.
 
-Anyways, good luck!
+This should help clean up [[Beginnings and Endings, Ending in Beginnings|the mess]] that the very naïve and disappointing, Harvecke Pimwald started:
 
 
 ✁̶̝̪͕̟̿̊̒µ̵̺͎̈̅͂̐̕˘̶͉͓̎͐̋͊̚͠≤̷͚̬͉͈͔̀̍̂̈̉̚͝ ̴̠̻̔̔̊͑̃͑∏̵̺͔̕æ̷̞̰̊̓̋͐̂̿͠›̶̨̱̼̩̀́̂͌͝˘̷̖̮͚̽.̸̡̨͓̲̰̥̼̈́̔̉̌̎ ̴͉̈͘✁̷̱̖̤͚͇̗̙̄̓̂̾̉̿͝µ̵̫͖̭̄̇͑̈̍˘̷̨̡̧̗̟̆͋͆̂̒͌͠ ̸̢̫̻̠̼̰̥̔͜—̶̨̢̛͎̠̰̱̔̔̕̕͠͝͝°̷͎̩̤̓̒͑̒͛͊̉͘ϐ̷͚̝̙̾͗͂͝ı̶̢͖̣͚̱͕̳̺̄̋͊̂͝Ә̸̲̰̓̀ɲ̴̛̟̋͝ı̷̨͈̮̤̟̦́͂ ̷̘͋͗̔̀͂̚͜ᕕ̸̫̖̰͖̗̤̓̂̏˘̴̻̪̰̥̯̟̘́̽̑æ̶̨̦͚͛͌̊̈́̍̽͠͝ɲ̵̧̱̰͖͕͇͕̽̉ϐ̸̧̼͓̩̯͔̩̞̈́̆̔͋͆̿ ̵̨̛̼̂̾̒ͅ�̶̨̖̹̲̞͒͒͝͝�̶̘͕̳͙̌̄͂͝˘̸̙͖̀¿̸̪̹͍̙̈́̽̉̋̔̇̽°̷̣͇͓͓̺͂̌̾́˘̸̺̩̲̮̬̓̀͗̏͊͜ᵛ̶̬͉̪̳̪̖̃̓͝˘̷͍̺̲̪̔̆͆͝≥̷͈͎̭̠̑̒̚ ̶̙̳̟̻̘̭͖̔̿ı̴̲͉͖̺̼̼́̋̊̑͑̏̄͜µ̵̹͖͔̞̞̍̽̇̽́̊̍͘˘̷̛͉̻̫͆̇̅͋›̵̧͔̩͎͈̻͛̿̒ϐ̶̮̻͓̟̓͝˘̴̛͍͙̩͖̻̗͈̋̀̑̉̓¿̷̫̱̝͐͝ᵛ̴͔͋̿͘͠˘̴̢̫̰̤̲̲͇̃ϐ̷̛̹̩͈̇̓͑͠ ̸̬̹̘͍̃̏ͅı̴̨̫̗͌̏͒̚͘æ̶̡̢̙͑̇̉͜͝ ̶͈̼̼͈͈̹̪͆̋̇̊̃̆̈́̇�̶͕͉̦̝͎̰̒̑̀͜�̷̗̰̯̓͋͆̄˘̸̯̐̇͌̌̀̍͠͝ ̵̡͍̪̹̫͚̓̕†̵̧̢̡̠̭͂°̴̛̘͍̗͇̈́͌͂̿̓͠ 
@@ -23,6 +23,6 @@ Anyways, good luck!
 ˘̸̼̣͕͔̉͜ͅ.̷̠̣̏̀̌̑͜ ̸̱̱̃ᕕ̸̢͍͈͇͓̣̈́ͅ¿̴̡̯͚̖͚͎̜̌͛̃̐¿̴̻̈́̌̊̀̈͋̒͝ ̴̩̖̙̆͆͊̋͌͆†̸͙̹̱͕̎̍͌̑̕͝°̸̱̑͘¿̶̡̨͈̬̟̟̱͌͜¿̷̷̺̙̯̯͉̙̪͉͈̲͉͚̈́̋͆͌̆͑̇̈́̔͐�̵̨̠̳͈̃̓̊̌̂̀͗�̷͚̳͎͉̜̬͗˘̸̬̱͓̖͉̩̮̥́̕�̴͙̻̳̹̮͎̊̈͊͛̎̀͑͝�̸̧͕̯͉́°̸̨͉̰̜̈́́͒̑͒̚ͅɲ̷̥̊ ̴̨̧͔̝̬̅̾̍̔̔̾͝Ә̵̨̼̩̤̋ɲ̸̼̩̬̥̫̮̺̓̄̓̅̓̚˘̷̻̄̔͋́†̶̢̪̠̜̬̰̅̔̓̈́̽̍̕͠.̸̟̯̥̾̽͛̽͘ı̵̙͗̍͐͝.̶̪̦̆͗̆̌̐̿̃ ̴̨̨̢̪̽́̕͜✁̶̼͔̓µ̵̢̜͉̥̺͋̍̆͆͒̕͜͠ͅ˘̵̨̛͙̹̞̝̭͗̽̈́̀ ̸̣͙̮̫̪͚̊͆̐  [[Kesthal]]  ̷͉̹̿̿̒¥̷̡͂̌̂̐̃̈̓̚˘̸̘̘̲̠̐̈́̉͂͘͝˘̶͍̯̘́ı̷͙͛̿µ̸̭̤͓̦͑̂̆̍̅̾̄̚
 
 
+(It's a real shame what happened to Harvecke, he was one of my favourites and had so much potential.)
 
-
-
+Anyways, good luck!
