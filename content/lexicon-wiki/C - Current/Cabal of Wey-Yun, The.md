@@ -1,6 +1,6 @@
 *From the adventuring diaries Populus Le-Clerc, archmage of the [[Qashtani Conclave]]*
 
-**W**hen I was assessing the aftermath of the [[Battle of Ulhcinsh, The|The Battle of Ulhcinsh]], particularly studying the impact of the Verdant Hand on their recently ancient Volthraki NALSITH RUIN, "liberated" at the hands of my learned acquaintance and  convicted war criminal Nyia Ehrelis (belive not her drivel of these so-called "enchantments", they do nothing other than obscure her cryptofascist xenophobia, as revealed in later testimony), I spotted a glowing tablet on the body of one of the many dead Ulhcinshi.
+**W**hen I was assessing the aftermath of the [[Battle of Ulhcinsh, The|The Battle of Ulhcinsh]], particularly studying the impact of the Verdant Hand on their recently ancient Volthraki Nalsith Ruin, "liberated" at the hands of my learned acquaintance and  convicted war criminal Nyia Ehrelis (belive not her drivel of these so-called "enchantments", they do nothing other than obscure her cryptofascist xenophobia, as revealed in later testimony), I spotted a glowing tablet on the body of one of the many dead Ulhcinshi.
 
 **E**ven though it had long since been lying in a pool of muck and blood, it appeared completely clean- a hallmark sign of the long-lost Cabal of Wey-Yun and their relics.
 
