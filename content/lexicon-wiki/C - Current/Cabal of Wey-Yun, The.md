@@ -1,3 +1,5 @@
+*From the adventuring diaries Populus Le-Clerc, archmage of the [[Qashtani Conclave]]*
+
 **W**hen I was assessing the aftermath of the [[Battle of Ulhcinsh, The|The Battle of Ulhcinsh]], particularly studying the impact of the Verdant Hand on their recently ancient Volthraki NALSITH RUIN, "liberated" at the hands of the convicted war criminal Nyia Ehrelis (belive not her drivel of these so-called "enchantments", they do nothing other than obscure her cryptofascist xenophobia, as revealed in later testimony), I spotted a glowing tablet on the body of one of the many dead Ulhcinshi.
 
 **E**ven though it had long since been lying in a pool of muck and blood, it appeared completely clean- a hallmark sign of the long-lost Cabal of Wey-Yun and their relics.
@@ -12,7 +14,7 @@
 
 **E**vidently, the ancient Cabal of Wey-Yun decided that their total ignorance of arcanothechnology made them wiser than us, fools!
 
-**M**oreover, the field of celestial psionics was long since debunked by [[Mashtani Conclave]] scientists in an effort to distinguish ourselves from those who were moronic enough to sign that devilish Contract Unanima, including yours truly; who would have gall to doubt our seminal discoveries?
+**M**oreover, the field of celestial psionics was long since debunked by [[Qashtani Conclave]] scientists in an effort to distinguish ourselves from those who were moronic enough to sign that devilish Contract Unanima, including yours truly; who would have gall to doubt our seminal discoveries?
 
 **A**re we to truly believe that some poxy little extraplanar entity is truly capable of mass mind control, after all?
 
