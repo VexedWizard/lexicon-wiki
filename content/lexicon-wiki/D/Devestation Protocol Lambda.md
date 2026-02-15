@@ -1,0 +1,7 @@
+_Written by Christopher Zhang, Economic Historian and acting Lead Data Analyst for UniFex_
+
+The 11th dataset of the Genesis Protocols granted to us by our top research divisions, Devestation Protocol Lambda (More recently known as the Mercy Project) is used only in the most dire of circumstances. Currently under strict ownership of [[HeartwoodCivic]], its exact details and development have been kept under close surveillance and secrecy. The last record of the Mercy Project being used was in [[Battle of Ulhcinsh, The]], allowing our conglomerate to perform a clean and efficient liberation of the Nalsith Ruin. What exactly occurred following the events of the Mercy Project are unclear and have caused much unrest across the globe, but HeartwoodCivic has been diligently working on making sure the Mercy Project is used only when it's absolutely necessary with new legislation following the protests recorded in every major city. 
+
+Having said the above, the Mercy Project has no doubt been nothing but profitable and safe for everyone involved. UniFex stands firmly behind its use, and reminds everyone that HeartwoodCivic and indeed the Conglomerate in its entirety works to ensure your well-being and health. 
+
+_All mention of the Genesis Protocols being granted to us by an entity dubbed [[Ziriphiel, The Great Maker]] is, of course, mindless drivel. If you notice anyone mentioning this being or any of its aliases don't hesitate to contact our research division._
