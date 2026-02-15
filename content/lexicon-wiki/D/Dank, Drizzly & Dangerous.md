@@ -16,7 +16,7 @@ H: - we were scared to start off because we were like, fuck this is heavy man, b
 
 PZ: Oh really? 
 
-H: Yeah, man! At first we were like all into peace and love, but now we're into hate crimes and genocide and shit !. We've defo been brainwaved into writing a new tunes and stuff.
+H: Yeah, man! At first we were like all into peace and love, but now we're into hate crimes and genocide and shit ! We've defo been brainwaved into writing new tunes and stuff.
 
 PZ: Sounds good, maybe some Death Vrooge-Grunge?
 
